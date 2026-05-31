@@ -6,7 +6,6 @@
 **Willkommen bei CTHULHUFILES.NET**
 
 CTHULHUFILES.NET ist kein gewöhnliches Archiv. Es ist eine Sammlung von Fragmenten – Texte, Analysen, Verweise und Beobachtungen –, die sich alle um ein zentrales Thema drehen: den kosmischen Horror von H. P. Lovecraft und die unaufhaltsame Ausbreitung seines Mythos in unserer modernen Kultur.
-
 Was einst als lose Sammlung von Geschichten begann, hat sich längst verselbstständigt. Der Cthulhu-Mythos ist kein abgeschlossenes Werk mehr. Er ist ein wachsendes Geflecht aus Ideen, Symbolen und unaussprechlichen Wahrheiten, das sich durch Literatur, Filme, Serien, Spiele und das Internet zieht. Manche erkennen ihn sofort. Andere spüren nur, dass etwas… nicht stimmt.
 
 Dieses Vault dient als Knotenpunkt.
