@@ -9,4 +9,5 @@ Diese Sammlung widmet sich dem Werk von H. P. Lovecraft, dem Cthulhu-Mythos und 
 
 Die Seite versteht sich nicht als wissenschaftliches Archiv, sondern als fortlaufende Sammlung für Leser und Interessierte, die mehr über Lovecraft, seine Einflüsse und die Entwicklung des kosmischen Horrors erfahren möchten. Ob Klassiker des Weird Fiction, vergessene Autoren oder moderne Interpretationen – Ziel ist es, Zusammenhänge sichtbar zu machen und zum Weiterlesen anzuregen.
 
+
 Viel Spaß beim Stöbern in den Schatten jenseits des Bekannten.
